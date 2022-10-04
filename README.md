@@ -10,5 +10,6 @@ Destiny's Fufilled surely does fill my soul, mind and body everytime I listen to
 Favorite songs: _Lose My Breath, Is She The Reason, Girl, Free_
 #### _All I Have_-Amerie
 ![Amerie_-_All_I_Have_album](https://user-images.githubusercontent.com/114502968/193716575-ba29e03f-f741-4419-8686-5b21259a0f63.jpg)
+
 NO. SKIPS. AT. ALL. Although Amerie is an underrated artist, this album has a soft and angelic-like instrumentals that perfectly encapsulate how I see and hear summer. Amerie's voice and raw vocals dominate over the beats of each song, depicting a message of love from what seems like a broken relationship. This masterpiece causes me to reminisce back to quarantine at the beginning of 9th grade, when I first heard the single "Talkin' To Me" while my playlist was on shuffle. Ironically, it makes me peaceful and free while being the epitome of summer jams. The leaves on her dress and background in the album cover further add to the tropical beaura that Amerie makes us travel to in our minds.
 Favorite songs: _Talkin' To Me, Float, Show Me, All I Have_
