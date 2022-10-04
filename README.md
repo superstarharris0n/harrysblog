@@ -8,4 +8,5 @@ Released in 2007, Graduation explores the themes of fame and wealth while also p
 ![Destiny's_Child_–_Destiny_Fulfilled](https://user-images.githubusercontent.com/114502968/193303735-e8693c7a-3f0b-4ca6-a3fb-676e73ce1032.jpg)
 Destiny's Fufilled surely does fill my soul, mind and body everytime I listen to this heavenly album. First off, I love how simple and homey the album cover is with the warmth of neutral tones popping from the members' faces. This album is centered around love, the highs that we feel during it as well as the trials and struggles we encounter during a relationship. I've never been in one but this album makes me feel like I am. Starting off with "Lose My Breath", the funky and uptempo beats shift to slower, serenading instrumentals which remind me of an ode. It provokes emotions of sadness and love with each song. Destiny's Child did it with their last album together.
 Favorite songs: _Lose My Breath, Is She The Reason, Girl, Free_
-####_![Amerie_-_All_I_Have_album](https://user-images.githubusercontent.com/114502968/193716415-e489e8fc-9aab-4c33-9308-376c3cab9531.jpg)
+####_All I Have_-Amerie
+![Amerie_-_All_I_Have_album](https://user-images.githubusercontent.com/114502968/193716415-e489e8fc-9aab-4c33-9308-376c3cab9531.jpg)
